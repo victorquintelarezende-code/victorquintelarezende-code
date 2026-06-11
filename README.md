@@ -10,8 +10,8 @@
 ---
 .Também gosto de fazer jogos aleatorios🗂️
 ----
-
-![](https://media.tenor.com/Rk5TGGvR0vcAAAAi/hollow-knight-hollow-knight-rotate.gif) ![](https://media.tenor.com/_N6wsyxjLzMAAAAi/dontstopgetitgetit.gif)
+![](https://media.tenor.com/_N6wsyxjLzMAAAAi/dontstopgetitgetit.gif)![](https://media.tenor.com/_N6wsyxjLzMAAAAi/dontstopgetitgetit.gif)![](https://media.tenor.com/_N6wsyxjLzMAAAAi/dontstopgetitgetit.gif)![](https://media.tenor.com/_N6wsyxjLzMAAAAi/dontstopgetitgetit.gif)![](https://media.tenor.com/_N6wsyxjLzMAAAAi/dontstopgetitgetit.gif)![](https://media.tenor.com/_N6wsyxjLzMAAAAi/dontstopgetitgetit.gif)![](https://media.tenor.com/_N6wsyxjLzMAAAAi/dontstopgetitgetit.gif)![](https://media.tenor.com/_N6wsyxjLzMAAAAi/dontstopgetitgetit.gif)![](https://media.tenor.com/_N6wsyxjLzMAAAAi/dontstopgetitgetit.gif)![](https://media.tenor.com/_N6wsyxjLzMAAAAi/dontstopgetitgetit.gif)![](https://media.tenor.com/_N6wsyxjLzMAAAAi/dontstopgetitgetit.gif)![](https://media.tenor.com/_N6wsyxjLzMAAAAi/dontstopgetitgetit.gif)
+ ![](https://media.tenor.com/_N6wsyxjLzMAAAAi/dontstopgetitgetit.gif)
 
 
 
