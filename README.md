@@ -2,8 +2,6 @@
 
 .Gosto muito de jogarm _Hollow Knight_ e outros jogos indies🎮
  ---
- 
- ![](https://media.tenor.com/Rk5TGGvR0vcAAAAi/hollow-knight-hollow-knight-rotate.gif)
 .Estou me desenvolvendo a área de JavaScript na programação
 ---
 .Adoro estudar matemática➗
@@ -13,6 +11,7 @@
 .Também gosto de fazer jogos aleatorios🗂️
 ----
 
+![](https://media.tenor.com/Rk5TGGvR0vcAAAAi/hollow-knight-hollow-knight-rotate.gif) ![](https://media.tenor.com/_N6wsyxjLzMAAAAi/dontstopgetitgetit.gif)
 
 
 
