@@ -1,16 +1,19 @@
-## Hi there 👋
+ ## Oi sou o _Excuse me son_ e essa são 5 coisas que eu gosto e faço :
 
-<!--
-**victorquintelarezende-code/victorquintelarezende-code** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+.Gosto muito de jogarm _Hollow Knight_ e outros jogos indies
+ -
+ ![](https://tenor.com/pt-BR/view/hollow-knight-hollow-knight-rotate-rotate-hollow-knight-spin-spin-gif-5066077995191620343)
+.Estou me desenvolvendo a área de JavaScript na programação
+-
+.Adoro estudar matemática 
+-
+.Assistir animes
+-
+.Também gosto de fazer jogos aleatorios
+-
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+
+
